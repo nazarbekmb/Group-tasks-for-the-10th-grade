@@ -3,4 +3,4 @@
 2) Kelesi júktelgen index.html jáne style.css kod úzindilerin qarap shyǵýlaryńyz qajet jáne sol berilgen kod úzindilerin oqı alýńyz qajet. 
 3) Daıyndaǵan tapsyrmalaryńyzdy github.com jelisindegi akkaýntyńyzǵa júkteý qajet.
 
-P.S. tapsyrmalardy juma kúni tapsyrýlaryńyz qajet, sáttilik:)
+P.S. Suraqtaryńyzdy kelesi silteme arqyly https://t.me/+a8PTWC6RiYVlYWQy ótip qoıa alasyzdar, tapsyrmalardy juma kúni tapsyrýlaryńyz qajet, sáttilik:)
