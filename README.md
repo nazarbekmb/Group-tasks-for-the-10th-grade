@@ -1,2 +1,4 @@
 # Group-tasks-for-the-10th-grade
-Group tasks for the 10th grade
+1) Kelesi tirkelgen sýretke sáıkes, Web paraqsha quryńyz. Sýret, qarip ólshemi barlyǵyn óz ıdeıańyzǵa qaraı ózgertseńiz bolady. 
+2) Kelesi júktelgen kod úzindiler qarap shyǵýlaryńyz qajet jáne sol berilgen kod úzindilerin oqı alýńyz qajet. 
+P.S. tapsyrmalardy juma kúni tapsyrýlaryńyz qajet, sáttilik:)
